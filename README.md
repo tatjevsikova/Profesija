@@ -1,0 +1,2 @@
+# Profesija
+Profesijas  apgūves apraksts.
